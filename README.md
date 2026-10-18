@@ -13,7 +13,7 @@ Call me Drawn or Wynn.
 
 𑣲Main fd: UU SMP.
 
-Fav mycts: Wifies & Rejoice𑁤 <img width="20" height="20" alt="1000022722" src="https://github.com/user-attachments/assets/f20face2-edfb-4048-9745-87c3c7bf4e77" />
+Fav mycts: Wifies & Rejoice𑁤
 
  <img width="500" height="181" alt="1000022706" src="https://github.com/user-attachments/assets/adcf015a-1e33-4d58-9653-aca90990a7a3" />
  
