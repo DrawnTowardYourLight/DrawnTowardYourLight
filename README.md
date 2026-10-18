@@ -1,32 +1,17 @@
-<div align="center">
-  ⡞⠳⣄⣀⣠⠞⢷ ֹ۪
-  <img width="536" height="210" alt="1000022410" src="https://github.com/user-attachments/assets/b604f762-a227-49cb-be3f-66066218808e" />
-
-   [![Typing SVG](https://readme-typing-svg.demolab.com?font=isometra&duration=4000&pause=1000&color=F7F7F7&background=000000&width=435&lines=✃Same+lies.+Different+person𓄧꒷꒦..)](https://git.io/typing-svg)
-  ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
+<div align="center"
   
-# Helo!! I am Wynn, or u could call m UnTrusty. =^_^=
-<img width="535" height="167" alt="1000022408" src="https://github.com/user-attachments/assets/aed21b17-fb61-429f-bfe1-81aee243e493" />
+┌──────── 🌻 ────────┐  
+![Boundary Breaker DNI](https://img.shields.io/badge/Boundary%20Breaker%20DNI-𖤓-000000?style=flat&labelColor=000000)
 
+## 𑁍ࠬܓI am a lover with or without a lover, because love is who I am, not who I'm with.
 
-`You and I are no different.`
+<img width="736" height="191" alt="1000022708" src="https://github.com/user-attachments/assets/d88ff303-a7e1-4bef-8ec8-a5c78d94c056" />
 
-˖ ݁♬⋆.˚𝄞 My main fd: UU SMP. 
-I won't add anyone if they're not in the same fandom as me꩜ .ᐟ
+  ⋆☀︎.My birthday. Its 1/7, remember that, my dear friends. ꫂ❁
+![Apafem](https://img.shields.io/badge/Apafem-F7CE5A?style=for-the-badge)
 
-‹𝟹 Most fav myct: Wifies˚.𐂯 ᵎᵎ
+𑣲Main fd: UU SMP.
 
-
-
-✚.𖥔 ݁ Trust — years to earn, seconds to break. ˖۶ৎ
-![Boundary Breaker DNI](https://img.shields.io/badge/Boundary+Breaker+DNI-⚠︎-white)
-
-Them: Would u still luv me if i turned into a flower¿!?¡ (˶>⩊<˶)
-
-Me!!!:
-<img width="670" height="281" alt="1000022409" src="https://github.com/user-attachments/assets/f1f61260-57a3-4ea1-afc0-c5a75099e374" />
-
-
- ❀࿐ Wynn out! Bbai!!! (˶˃ ∇ ˂˶)
-
-  ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+Fav mycts: Wifies & Rejoice𑁤
+ 
+└──────── 🌻 ────────┘
