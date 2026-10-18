@@ -5,6 +5,7 @@
 
 ## 𑁍ࠬܓI am a lover with or without a lover, because love is who I am, not who I'm with.
 
+Call me Drawn or Wynn.
 <img width="736" height="191" alt="1000022708" src="https://github.com/user-attachments/assets/d88ff303-a7e1-4bef-8ec8-a5c78d94c056" />
 
   ⋆☀︎.My birthday. Its 1/7, remember that, my dear friends. ꫂ❁
